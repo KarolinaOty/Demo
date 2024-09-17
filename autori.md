@@ -2,8 +2,6 @@
 Toto je zoznam autorov
 
 KarolinaOty *karolinakristofova3@gmail.com*
-Tenteu stanislava.marusova@gmail.com , nick is Stan uwu
+Tenteu stanislava.marusova@gmail.com , nick is Stan 
 
 hiiii~~~~+
-
-ALHAITHAM
